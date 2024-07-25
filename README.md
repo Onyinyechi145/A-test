@@ -17,3 +17,4 @@ Been in the tech space has been a long time desire but for some weird reasons I 
 My Table                                                                           |        Your Table  
 :--------------:                                                                   |        :--------------:        
 ![](https://github.com/Onyinyechi145/A-test/blob/main/Smile%20To%20learn.jpg)      |        ![](https://github.com/Onyinyechi145/A-test/blob/main/lovely%20People.jpg)
+@Amarabright
